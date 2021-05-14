@@ -1,0 +1,2 @@
+# yigitdemiralp
+static webstie
